@@ -1,2 +1,1 @@
-# SvrsocA1
- SvrsocA1
+<meta http-equiv="refresh" content="0; url=https://Beese-Churger.github.io/SvrsocA1/index.html">
